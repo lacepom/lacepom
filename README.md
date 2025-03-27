@@ -23,6 +23,6 @@
 ![k0ov17](https://github.com/user-attachments/assets/8248de75-13e3-47ed-9bfc-8c45dea52aeb)
 
 ### ꒰ᐢ. .ᐢ꒱₊˚⊹ Other places to find me~
-![pi107](https://github.com/user-attachments/assets/24d73254-9151-4a5c-8fcc-afcd4c582aa8) [Carrd](https://dovelytea.carrd.co/) </br>
+![pi107](https://github.com/user-attachments/assets/24d73254-9151-4a5c-8fcc-afcd4c582aa8) [Carrd]([https://dovelytea.carrd.co/](https://lacepom.uwu.ai)) </br>
 ![pi107](https://github.com/user-attachments/assets/5fde9042-6be9-4016-bcd7-c37abecbd932) [Trello](https://trello.com/b/FNQsMbu4/doves-list-of-dos-and-owes) </br>
-![pi107](https://github.com/user-attachments/assets/c2a18147-4966-4140-9a8e-ab12e7b89c65) [Neocities(wip)](https://hananoame.neocities.org/) </br>
+![pi107](https://github.com/user-attachments/assets/c2a18147-4966-4140-9a8e-ab12e7b89c65) [Neocities(wip)](https://fallenfleurs.neocities.org/) </br>
