@@ -1,5 +1,5 @@
 
-![b5becede895cb02ca0d630cabc5a8a4b](https://github.com/user-attachments/assets/eb650cbe-f3b5-48ca-9ba5-b94effa0174f)
+![b5becede895cb02ca0d630cabc5a8a4b](https://files.catbox.moe/fd3ihv.webp)
 
 ### ૮ ˶ᵔ ᵕ ᵔ˶ ა Hello there~
 
@@ -20,7 +20,7 @@
 
 ![hgi41g](https://github.com/user-attachments/assets/372196aa-cbba-4077-b54c-246aed6e5c4e) ![mdreh9](https://github.com/user-attachments/assets/5174c978-b9c5-4ad1-8611-f7d55cda23a0) ![edye3b](https://github.com/user-attachments/assets/6f79938a-0d21-4edd-8cf9-4caebcb17a5a) ![56qc1c](https://github.com/user-attachments/assets/6bce192f-dd29-450b-85dc-aaf812720bad) ![tme1ks](https://github.com/user-attachments/assets/1a6cb7b8-8cf6-4bb6-9bab-2ee1203db511) </br>
 
-![k0ov17](https://github.com/user-attachments/assets/8248de75-13e3-47ed-9bfc-8c45dea52aeb)
+![k0ov17](https://files.catbox.moe/ifv2v7.jpg)
 
 ### ꒰ᐢ. .ᐢ꒱₊˚⊹ Other places to find me~
 ![pi107](https://github.com/user-attachments/assets/24d73254-9151-4a5c-8fcc-afcd4c582aa8) [Carrd](https://lacepom.uwu.ai) </br>
