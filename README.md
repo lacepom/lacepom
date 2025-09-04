@@ -4,6 +4,8 @@
 I love to create websites, and games! (mainly renpy and rpgmaker)
 
 I am happily married, I would do anything for my husband! 
-I'm also a arch linux enthusiast! I might have a hard time grasping new coding languages and such, but give me time and patience and I will get better <3
+<br><br>
+I'm also an arch linux enthusiast! I might have a hard time grasping new coding languages and such, but give me time and patience and I will get better <3
 I am someone who will always try something at least once! 
+<br><br>
 If you have any questions or concerns feel free to email me @ lacepom@pm.me ![](https://file.garden/Zpt04KL0r1V-kQd1/decos/fb8555af.gif)
